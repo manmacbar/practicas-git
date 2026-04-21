@@ -1,3 +1,3 @@
 Manuel Machuca Bárcena
 Ciclo: ASIR
-Descripcion: 41 años, serio pero simpático. De Sanlúcar de Barrameda.
+Descripcion: De Sanlúcar de Barrameda.
